@@ -1,6 +1,5 @@
 ### Hi there 👋
 
-Typing SVG
 Hello there! 🌟 Thanks for stopping by. Dive in to explore my journey and the expertise I bring to the table.
 
 About Me 🙋‍♂️
